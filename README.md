@@ -1,2 +1,2 @@
 # resume
-My Resume
+Please check out the pdf
